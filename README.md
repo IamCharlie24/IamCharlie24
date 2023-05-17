@@ -1,1 +1,1 @@
-![](https://github.com/IamCharlie24/https://tenor.com/view/error-oncall-no-internet-connection-gmae-google-gif-17443142)
+https://github.com/IamCharlie24/IamCharlie24/blob/main/tenor.gif
